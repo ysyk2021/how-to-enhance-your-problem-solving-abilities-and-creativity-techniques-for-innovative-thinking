@@ -1,5 +1,3 @@
-Techniques for Practicing Divergent Thinking
-======================================================================================
 
 Divergent thinking is a powerful tool for generating innovative ideas and solutions to complex problems. In this chapter, we will explore techniques for practicing divergent thinking.
 
@@ -57,5 +55,4 @@ Conclusion
 ----------
 
 Divergent thinking is a powerful tool for generating innovative ideas and solutions to complex problems. Techniques for practicing divergent thinking include brainstorming, mind mapping, random word association, role playing, and challenging assumptions. By incorporating these techniques into our problem-solving processes, we can generate a wider range of creative ideas and solutions, enhance our flexibility and creativity, and become more effective problem solvers.
-
 

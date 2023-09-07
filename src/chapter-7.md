@@ -1,5 +1,3 @@
-Chapter 7: Reframing Problems
-=============================
 
 Reframing problems is an important technique for enhancing problem-solving abilities and creativity. In this chapter, we will explore techniques for reframing problems, strategies for viewing problems from different perspectives, and the benefits of reframing problems in encouraging innovative thinking.
 

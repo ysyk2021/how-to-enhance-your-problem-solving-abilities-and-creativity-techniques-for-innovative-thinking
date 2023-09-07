@@ -37,3 +37,4 @@
   - [The Benefits of Seeking Inspiration in Stimulating Innovative Thinking](chapter-9-3.md)
 - [Conclusion](conclusion.md)
 - [Contacts](contacts.md)
+- [Our Other Books](other-books.md)

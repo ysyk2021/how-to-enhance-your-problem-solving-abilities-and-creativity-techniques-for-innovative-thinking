@@ -1,4 +1,4 @@
-# Introduction
+
 
 Welcome to "How to Enhance Your Problem Solving Abilities and Creativity: Techniques for Innovative Thinking." In this book, we will explore various strategies and techniques to help you develop and enhance your problem-solving skills and unleash your creativity.
 
@@ -17,3 +17,7 @@ So, whether you're a student looking to excel academically, a professional aimin
 Let's dive in and embark on a journey of enhancing your problem-solving abilities and unleashing your creativity!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng

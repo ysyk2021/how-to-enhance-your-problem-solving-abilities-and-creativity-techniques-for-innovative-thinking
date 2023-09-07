@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Problem-solving abilities and creativity are essential skills in today's rapidly changing world. In this chapter, we will define problem solving and creativity and explore the benefits of enhancing these skills.
 

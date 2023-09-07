@@ -1,5 +1,3 @@
-Chapter 2: Identifying Your Problem Solving Style
-=================================================
 
 Identifying your problem-solving style is a crucial step in enhancing your problem-solving abilities and creativity. In this chapter, we will explore techniques for identifying your problem-solving style, strategies for recognizing common problem-solving techniques, and the benefits of identifying your problem-solving style in promoting self-awareness.
 

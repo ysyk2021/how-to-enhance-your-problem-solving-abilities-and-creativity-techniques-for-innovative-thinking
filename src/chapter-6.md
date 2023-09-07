@@ -1,5 +1,3 @@
-Chapter 6: Collaborating and Brainstorming
-==========================================
 
 Collaboration and brainstorming are essential components of creative problem solving. In this chapter, we will explore techniques for collaborating and brainstorming, strategies for encouraging teamwork and open communication, and the benefits of collaborating and brainstorming in generating creative solutions.
 

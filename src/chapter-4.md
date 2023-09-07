@@ -1,5 +1,3 @@
-Chapter 4: Practicing Divergent Thinking
-========================================
 
 Divergent thinking is a crucial aspect of problem-solving and creativity. In this chapter, we will explore techniques for practicing divergent thinking, strategies for generating ideas and solutions, and the benefits of divergent thinking in enhancing creativity.
 

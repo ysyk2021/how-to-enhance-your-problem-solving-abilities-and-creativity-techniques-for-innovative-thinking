@@ -1,5 +1,3 @@
-Defining Problem Solving and Creativity
-================================================================
 
 Problem solving and creativity are essential skills in today's world. In this chapter, we will define problem solving and creativity.
 

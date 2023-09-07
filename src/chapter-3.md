@@ -1,5 +1,3 @@
-Chapter 3: Challenging Your Assumptions
-=======================================
 
 Challenging our assumptions is a crucial aspect of enhancing our problem-solving abilities and creativity. In this chapter, we will explore techniques for challenging your assumptions, strategies for overcoming mental blocks and limitations, and the benefits of challenging your assumptions in stimulating innovative thinking.
 

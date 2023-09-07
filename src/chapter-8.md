@@ -1,5 +1,3 @@
-Chapter 8: Experimenting and Iterating
-======================================
 
 Techniques for Experimenting and Iterating
 ------------------------------------------
