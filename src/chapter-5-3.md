@@ -1,5 +1,4 @@
-Chapter 7: The Benefits of Developing a Growth Mindset in Overcoming Obstacles and Finding Solutions
-====================================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In our quest to enhance problem-solving abilities and foster innovative thinking, developing a growth mindset is essential. Adopting a growth mindset enables individuals to approach challenges with resilience, adaptability, and a belief in their ability to learn and improve. In this chapter, we will explore the numerous benefits of cultivating a growth mindset in overcoming obstacles and finding creative solutions.
 

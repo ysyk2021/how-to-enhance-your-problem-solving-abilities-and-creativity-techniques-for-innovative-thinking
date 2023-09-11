@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Identifying Your Problem-Solving Style
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Identifying your problem-solving style is crucial for understanding your strengths, weaknesses, and preferences when it comes to tackling challenges. Recognizing your problem-solving style can help you leverage your strengths and develop strategies to overcome obstacles effectively. In this chapter, we will explore various techniques that can assist you in identifying your problem-solving style.
 

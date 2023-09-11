@@ -1,5 +1,4 @@
-Chapter 7: The Benefits of Seeking Inspiration in Stimulating Innovative Thinking
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Seeking inspiration is a powerful technique for enhancing problem-solving abilities and fostering innovative thinking. It opens the doors to new ideas, fresh perspectives, and imaginative solutions. In this chapter, we explore the many benefits of actively seeking inspiration and how it stimulates innovative thinking.
 

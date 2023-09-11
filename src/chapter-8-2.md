@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Testing and Refining Ideas
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Coming up with innovative ideas is just the first step in the creative process. To bring those ideas to fruition, it is crucial to test and refine them. In this chapter, we will explore various strategies that can help you effectively test and refine your ideas, ensuring their viability and maximizing their potential for success.
 

@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Seeking Inspiration
-=============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the quest to enhance problem-solving abilities and foster innovative thinking, seeking inspiration plays a pivotal role. Inspiration can spark creativity, provide fresh perspectives, and ignite the imagination. This chapter explores various techniques for effectively seeking inspiration, allowing you to tap into a world of creative possibilities.
 

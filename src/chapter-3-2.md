@@ -1,5 +1,4 @@
-Chapter 7: Strategies for Overcoming Mental Blocks and Limitations
-==================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In our quest to enhance problem-solving abilities and foster innovative thinking, it is crucial to overcome mental blocks and limitations that hinder our creativity. Mental blocks are barriers that prevent us from thinking creatively or finding effective solutions to problems. These blocks can arise from various sources, such as fear, self-doubt, or fixed thinking patterns. This chapter explores strategies and techniques for overcoming mental blocks and limitations to unlock our full creative potential.
 

@@ -1,5 +1,4 @@
-Chapter 6: Strategies for Recognizing Common Problem-Solving Techniques
-=======================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of enhancing problem-solving abilities and promoting innovative thinking, it is essential to familiarize oneself with common problem-solving techniques. By recognizing these techniques, individuals can expand their problem-solving repertoire and apply diverse strategies to different challenges. In this chapter, we will explore effective strategies for identifying and understanding common problem-solving techniques.
 

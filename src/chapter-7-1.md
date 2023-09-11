@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Reframing Problems
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of enhancing problem-solving abilities and fostering innovative thinking, one indispensable skill is the art of reframing problems. Reframing involves looking at challenges from different perspectives and seeking alternative interpretations. In this chapter, we will explore a variety of powerful techniques that can help individuals reframe problems effectively, unleashing their creativity and unlocking new solutions.
 

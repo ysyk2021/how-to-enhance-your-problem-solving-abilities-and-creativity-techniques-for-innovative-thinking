@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Collaborating and Brainstorming
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Collaboration and brainstorming are powerful techniques that can enhance problem-solving abilities and stimulate creative thinking. In this chapter, we will explore various techniques that can be employed to facilitate effective collaboration and brainstorming sessions.
 

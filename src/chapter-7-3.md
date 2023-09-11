@@ -1,5 +1,4 @@
-Chapter 7: The Benefits of Reframing Problems in Encouraging Innovative Thinking
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In our journey to enhance problem-solving abilities and cultivate innovative thinking, one powerful technique that can significantly contribute is reframing problems. Reframing involves shifting our perspective and looking at problems from different angles or in alternative ways. By challenging assumptions and exploring new possibilities, reframing provides a fresh lens through which we can approach problem-solving. This chapter explores the benefits of reframing problems and how it encourages innovative thinking.
 

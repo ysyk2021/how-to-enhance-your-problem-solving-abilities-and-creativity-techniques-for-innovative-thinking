@@ -1,5 +1,4 @@
-Chapter 5: Strategies for Embracing Challenges and Learning Opportunities
-=========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In our quest to enhance problem-solving abilities and foster innovative thinking, it is crucial to develop strategies for embracing challenges and learning opportunities. Embracing challenges allows us to push our boundaries, overcome obstacles, and discover new solutions. This chapter explores various strategies that can help individuals embrace challenges wholeheartedly, cultivate a growth mindset, and make the most of learning opportunities.
 

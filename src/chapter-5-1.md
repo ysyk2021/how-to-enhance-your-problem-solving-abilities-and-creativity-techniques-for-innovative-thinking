@@ -1,5 +1,4 @@
-Chapter 8: Techniques for Developing a Growth Mindset
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In our quest to enhance problem-solving abilities and cultivate innovative thinking, developing a growth mindset is paramount. A growth mindset is the belief that intelligence and abilities can be developed through dedication, effort, and continuous learning. By adopting a growth mindset, we open ourselves up to new possibilities, embrace challenges as opportunities for growth, and persist in the face of setbacks. This chapter explores effective techniques for developing a growth mindset.
 

@@ -1,5 +1,4 @@
-Chapter 8: Techniques for Challenging Your Assumptions
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of enhancing problem-solving abilities and fostering innovative thinking, one powerful technique is to challenge our assumptions. Assumptions are deeply ingrained beliefs or notions that we hold about the world, others, or ourselves. They can limit our perspective, hinder creative thinking, and impede our ability to generate innovative solutions. This chapter explores various techniques for effectively challenging our assumptions to stimulate innovative thinking.
 

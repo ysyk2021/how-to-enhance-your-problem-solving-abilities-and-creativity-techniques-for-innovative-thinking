@@ -1,5 +1,4 @@
-Chapter 10: Strategies for Generating Ideas and Solutions
-=========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Innovation and problem-solving rely on the ability to generate creative and effective ideas and solutions. In this chapter, we will explore various strategies that can be used to stimulate idea generation and facilitate the development of innovative solutions.
 

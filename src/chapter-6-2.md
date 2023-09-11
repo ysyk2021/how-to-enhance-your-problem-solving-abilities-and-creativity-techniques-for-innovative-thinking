@@ -1,5 +1,4 @@
-Chapter 9: Strategies for Encouraging Teamwork and Open Communication
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore effective strategies for fostering teamwork and promoting open communication within a team. By creating an environment that encourages collaboration, creativity, and open dialogue, you can enhance problem-solving abilities and cultivate innovative thinking.
 
